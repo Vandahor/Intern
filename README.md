@@ -2,5 +2,4 @@
 Githup tutorial
 
 This weekend is simple nothing to do
-huuu
-hey hey
+cambodia kingdom of wonder
